@@ -1,0 +1,2 @@
+- I don't fw you if you don't fw Jann Hub.
+- discord.gg/jannproducts
